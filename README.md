@@ -7,6 +7,11 @@
 <p align=center><img src="https://i.pinimg.com/564x/52/4c/82/524c821f138f12af3457d6384e2d82ab.jpg" width="281.5" /></p>
 <p align=center><b>pony town</b> <em>status</em></p>
 <p align=center>🟢 = idk i dont use it</p>
-<p align=center>⛔ = online! ^_^</p>
+<p align=center>⛔ = online! :3</p>
 <p align=center>🌙 = offtab. feel free 2 whisp! </p>
+<p align=center> 4 pony town </p>
+<p align=center> please do not compare me to those freaks that are on the fandom im in </p>
+<p align=center> you can sit w me, idm, crowns are appreciated ♥️ </p>
+<p align=center> please dont kiss me ^_^ </p>
+<p align=center> dni: irl shippers + more. </p>
 <p align=center><img src="https://64.media.tumblr.com/e45820011326b8658eeaa3b47803aa86/471ee5b282f9fb5e-fb/s540x810/9efb08d63e1ca2b48b221e8bc479e8adf0bbdddb.pnj"/></p>
