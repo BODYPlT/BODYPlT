@@ -4,7 +4,7 @@
 <p align=center>or sid, daron. ꒰ঌ໒꒱ <b>he/him</b></p>
 <p align=center>esp/eng ! latino .. ✦</p>
 <p align=center><b>autistic !</b></p>
-<p align=center><img src="https://i.pinimg.com/originals/b9/ec/d6/b9ecd6cd90b7538debb1bc0bdf22e86b.gif" height="325" width="394"/></p>
+<p align=center><img src="https://i.pinimg.com/564x/52/4c/82/524c821f138f12af3457d6384e2d82ab.jpg" width="281.5" /></p>
 <p align=center><b>pony town</b> <em>status</em></p>
 <p align=center>🟢 = idk i dont use it</p>
 <p align=center>⛔ = online! ^_^</p>
