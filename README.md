@@ -13,5 +13,6 @@
 <p align=center> please do not compare me to those freaks that are on the fandom im in </p>
 <p align=center> you can sit w me, idm, crowns are appreciated ♥️ </p>
 <p align=center> please dont kiss me ^_^ </p>
+<p align=center> also please for the love of GOD <b>DONT COPY MY SKINS!</b> </p>
 <p align=center> dni: irl shippers + more. </p>
 <p align=center><img src="https://64.media.tumblr.com/e45820011326b8658eeaa3b47803aa86/471ee5b282f9fb5e-fb/s540x810/9efb08d63e1ca2b48b221e8bc479e8adf0bbdddb.pnj"/></p>
