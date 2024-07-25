@@ -16,5 +16,5 @@
 basic dni, qsmp, dsmp + mcyt, <b>irl shippers</b>, edgys, tcc.</p>
 <p align=Center>crownz are always appreciated ^_^</p>
 <p align=Center>also i forgot to mention, that, <b>im not interacting with you</b> at the start, if we have barely interacted or know who you are, will talk w u</p>
-<p align=Center>+ <b>STOP COPYING MY SKINS!</b>(stop trying pls, i notice too im not blind -_-)</p>
+<p align=Center>+ <b>STOP COPYING MY SKINS!</b>(stop trying pls, i notice too im not blind -_-)(<b>and not because we are ""friends""/we talk YOU have to copy me</b>)</p>
 <p align=center><img src="https://64.media.tumblr.com/7bb13b95d780a7e331a96db074358155/996c602d7e7167da-37/s250x400/2ef2b1b92650dfe49a8a224e37fd21f0cd4b4df1.gifv" height="20"/></p>
