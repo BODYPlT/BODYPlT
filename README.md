@@ -1,6 +1,6 @@
 <p align="center"><img src="https://64.media.tumblr.com/419f02c9c14405e8d10cff760a4c24c1/ff3c8b8a9f09b685-8e/s540x810/e65c0e8f5bd224dadd1965b3bea432758db9c1fb.pnj" height="50"/></p>
-<p align="center"><i>"fuck off me.."</i></p>
-<p align="center"><img src="https://files.catbox.moe/zah09d.gif" height="350"/></p>
+<p align="center"><i>"pay attention to your twisted little indiscretions.."</i></p>
+<p align="center"><img src="https://files.catbox.moe/3paqfd.gif" height="200"/></p>
 <p align="center"><img src="https://64.media.tumblr.com/f8b447eca09928dbb8f5ea9b5b82083e/c20ad8a62d7f9ff7-fe/s540x810/a10f164738fc142fcec236a4567dc7d80930bfaa.pnj" height="40"/></p>
 <p align="center">PAUL <img src="https://i.imgur.com/jANDKYJ.gif"/> <b>he</b>/<i>him</i></p>
 <p align="center"><img src="https://i.imgur.com/0OtfAuB.gif"/> <b>ESP</b>/eng . latin<i>o</i> <img src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"/></p>
