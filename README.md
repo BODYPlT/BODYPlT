@@ -1,6 +1,6 @@
 <p align="center"><img src="https://64.media.tumblr.com/419f02c9c14405e8d10cff760a4c24c1/ff3c8b8a9f09b685-8e/s540x810/e65c0e8f5bd224dadd1965b3bea432758db9c1fb.pnj" height="50"/></p>
-<p align="center"><i>"pay attention to your twisted little indiscretions.."</i></p>
-<p align="center"><img src="https://files.catbox.moe/3paqfd.gif" height="200"/></p>
+<p align="center"><i>"i play <a href="https://www.youtube.com/watch?v=90tMJjWQTBQ">doctor</a> for five minutes flat.."</i></p>
+<p align="center"><img src="https://web.archive.org/web/20010620014028im_/http://showcase.netins.net/web/crowz/main/Sanim.gif"/><img src="https://files.catbox.moe/aouvy1.gif"/><img src="https://web.archive.org/web/20010620014028im_/http://showcase.netins.net/web/crowz/main/Sanim.gif"/></p>
 <p align="center"><img src="https://64.media.tumblr.com/f8b447eca09928dbb8f5ea9b5b82083e/c20ad8a62d7f9ff7-fe/s540x810/a10f164738fc142fcec236a4567dc7d80930bfaa.pnj" height="40"/></p>
 <p align="center">PAUL <img src="https://i.imgur.com/jANDKYJ.gif"/> <b>he</b>/<i>him</i></p>
 <p align="center"><img src="https://i.imgur.com/0OtfAuB.gif"/> <b>ESP</b>/eng . latin<i>o</i> <img src="https://64.media.tumblr.com/fad8bd0544a50085a1156580a68585e5/3711901869dc7043-5c/s75x75_c1/4c823ef73509e24a0c5f8f01ea2681692a893c5a.gifv"/></p>
@@ -11,6 +11,7 @@
 <p align="center"><img src="https://files.catbox.moe/qjea4w.png" height="100"/></p>
 <p align="center"><b>PONYTOWN INFO</b></p>
 <p align="center"><img src="https://64.media.tumblr.com/f8b447eca09928dbb8f5ea9b5b82083e/c20ad8a62d7f9ff7-fe/s540x810/a10f164738fc142fcec236a4567dc7d80930bfaa.pnj" height="40"/></p>
+<p align="center"><img src="https://files.catbox.moe/bbgwch.png" width="200"/></p>
 <p align="center"><b>"STATUS"</b></p>
 <p align="center">⛔ ⵓ on game , playing</p>
 <p align="center">🌙 ⵓ offtab , w2i</p>
@@ -23,5 +24,6 @@
 <p align="center"><b>(IF YOUR ON MY DNI FEEL FREE TO HIDE ME :-)</b></p>
 <p align="center"><b>(or i just hide you instead ¯\_(ツ)_/¯)</b></p>
 <p align="center">i think thats all, byeee (^_^)/</p>
+<p align="center"><img src="https://files.catbox.moe/5cttlx.gif"/></p>
 <p align="center"><img src="https://64.media.tumblr.com/63047f20039ce49fa7e42288666666d2/c20ad8a62d7f9ff7-5d/s540x810/f1100da23af4a62c124bb5e9b1a19ae9494b907a.pnj" height="40"/></p>
 <p align="center"><img src="https://64.media.tumblr.com/dab439843ee8cd9d5c76b7ab0a179ee4/ff3c8b8a9f09b685-67/s540x810/a1671f860fe9776503da288ca5f922f0159d998e.pnj" height="50"/></p>
