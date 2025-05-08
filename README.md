@@ -11,4 +11,4 @@
 <p align="center"/><b>wip , still testing shit , .</b></p>
 <img src="https://github.com/user-attachments/assets/ccc45868-12c6-4afd-9160-617d6a8e2a72" height="250px" align="left"/>
 
-<img src="https://64.media.tumblr.com/7292c99732d558a3d9d087aa66540aed/a05fc3d00ef4deb7-79/s2048x3072/5c38176e82ba4ce7dcb19a84214a80c30766ebae.png" width="800"/>
+<img src="https://64.media.tumblr.com/7292c99732d558a3d9d087aa66540aed/a05fc3d00ef4deb7-79/s2048x3072/5c38176e82ba4ce7dcb19a84214a80c30766ebae.png" width="800" align="center"/>
