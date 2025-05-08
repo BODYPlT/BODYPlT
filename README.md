@@ -8,5 +8,5 @@
 
 
 
-<b>wip , still testing shit , .</b>
+<p align="center"/><b>wip , still testing shit , .</b></p>
 <img src="https://github.com/user-attachments/assets/ccc45868-12c6-4afd-9160-617d6a8e2a72" height="250px" align="left"/>
