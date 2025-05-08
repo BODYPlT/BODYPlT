@@ -1,5 +1,5 @@
 ##### pc supported ,
-<img src="https://github.com/user-attachments/assets/94f5090c-9e38-46cf-ba7d-93419de553ce" style="float" align="left" height="330" style="stetch"/>
+<img src="https://github.com/user-attachments/assets/94f5090c-9e38-46cf-ba7d-93419de553ce" style="float" align="left" height="370" style="stetch"/>
 <p align="center"/>
 <img src="https://github.com/user-attachments/assets/2186809b-2dfd-433a-9b25-f3a53c9966c3" align="center" height="50"/>
 <img src="https://github.com/user-attachments/assets/3cf3db51-1cba-4830-a102-d091e8c2143e" style="Float" align="center" height="50"/>
