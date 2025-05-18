@@ -1,3 +1,4 @@
+# (MAY RE-DO, STRAWPAGE TOO, I DIDNT LIKE THE FINISH OF THIS :C)
 ##### pc supported ,
 <img src="https://github.com/user-attachments/assets/94f5090c-9e38-46cf-ba7d-93419de553ce" style="float" align="left" height="375" style="stetch"/>
 <p align="center"/>
