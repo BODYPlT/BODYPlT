@@ -27,5 +27,5 @@
 <p align="center"/>just be nice idk?</p>
 <p align="center"/>^.^</p>
 
-<p align="Center"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/>
+<p align="Center"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/></p>
 <p align="Center"/><img src="https://github.com/user-attachments/assets/28b2f085-3201-469f-8fc8-806109bf33e2" height="300"/></p>
