@@ -26,8 +26,6 @@
 <p align="center"/>(yeah someone really did that on a horse game, weirdos)</b></p>
 <p align="center"/>just be nice idk?</p>
 <p align="center"/>^.^</p>
-
-
 <img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/><img src="https://github.com/user-attachments/assets/c1e57d25-db78-452f-b5b6-19f7c43e2f63" height="100"/>
 
 
