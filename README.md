@@ -14,7 +14,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/150c21bb-daef-4763-b1fd-bc14d4602560" width="800" align="center"/></p>
 
 
-<img src="https://i.pinimg.com/736x/70/85/12/708512aaf2fd1d83a02babfd4e46742f.jpg" style="float" align="right" height="372" style="stetch"/>
+<img src="https://i.pinimg.com/736x/70/85/12/708512aaf2fd1d83a02babfd4e46742f.jpg" style="float" align="right" height="369" style="stetch"/>
 
 <p align="center"/><b> pony town info , </b>
 <p align="center"/>  🌙 : afk , offtab , spec</p>
